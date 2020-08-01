@@ -1,2 +1,7 @@
-# Kagil-Heros
-Stories of our brave Soldier during Kargil. It shows how much sacrifice our soldiers made during the war and prove them self as real heroes.
+# Kargil:Why 14 paratroopers for bofors gun fire upon them?
+It was a shivering cold night when the men of 5 para SF where climbing the tricky mountain without bullet proof jackets and helmets because doing so was adding weight and making their steps slow. The climb was already very tricky and and they do not wanted to make it more difficult. They were always due to poor diet they were getting from more than one week.
+Finally they spot the enemy, but it was not only them who spotted. The Pakistani also spotted the man of 5 para SF. Suddenly a fire comes from grenade launcher and the granade explodes, but couldn't hurt them because they were in cover
+Captain carie decided to fire back on them with rocket launcher, he moved in the open and as he moves in the open another grenade comes to him and explode just in front of him. Soldier yells "sir you are bleeding from head". He pulled captain back to the cover. Captain was lucky to be alive. He bandaged the best way he could. Men's of 5 para SF also opened fire now. This conflicts goes on  for 1 hour and then a man screams sir we are going out of ammunition. Carry says to hold fire. He tells all of his men let them come in our range then we will fire. After half an hour a man shouts sir they are coming and they are so many.carie asks how many. Naresh was about reply a bullet hits him and smashers his jaw and he fell down to ground.
+Carie halted the LMG and started firing. He was shot on his arm and everyone can see his bone jutting from the wound. There was a little admonition left.
+Carry suddenly picks up the communication set and calls bofors regiment........
+To read full story visit https://smithportfolios.wordpress.com/2020/08/01/kargil-why-14-paratroopers-asked-for-bofors-gun-fire-upon-them/
